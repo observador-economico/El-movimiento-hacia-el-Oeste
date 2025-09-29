@@ -1,1 +1,4 @@
 # El-movimiento-hacia-el-Oeste
+Para F. J. Turner, el Oeste explicaría toda la historia americana y la noción de frontera permitiría analizar la evolución económica y política de los Estados Unidos. Esta tesis data de 1893, y si a muchos autores les ha parecido demasiado exclusivista, posee el mérito de ofrecer una verdadera filosofía de la historia. El amor por la libertad y la democracia serían una herencia del individualismo y de la sociedad democrática del Oeste. 
+For F. J. Turner, the West explained the entirety of American history, and the notion of the frontier provided a framework to analyze the economic and political evolution of the United States. This thesis, dating from 1893, though considered overly exclusive by many authors, has the merit of offering a genuine philosophy of history. The love of freedom and democracy would be an inheritance of individualism and the democratic society of the West. 
+
